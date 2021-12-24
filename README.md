@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @happyventures
+- 👀 We are an accelerator based in Casablanca with a spefici focus on Africa and Middle East countries
+- 🌱 We are with startups to develop new solutions for emerging markets
+- 💞️ We particularly like to facilitate collaboration between startups
+- 📫 You can reach us at https://www.happyventures.ma
